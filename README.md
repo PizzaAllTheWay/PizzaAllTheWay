@@ -8,7 +8,7 @@ Go get em >:D
 - Your patience is your power - "Anon"
 - You'll grow beutifully in your own way - "Dhiman"
 - Do or do not there is no try - "Dumbledore"
-- If you know thai self, thau shall not fear the outcome of the battle - "Sun Tzu"
+- If you know thai enemy and thai self, thau shall not fear the outcome of 1000 battles - "Sun Tzu"
 - There are no accidents - "Sun Jin Wo"
 - Pizza Is Love Pizza Is Life - "Shrek"
 - If there's a hole, theres a goal - "Master Ougway"
